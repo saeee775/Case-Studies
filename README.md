@@ -43,6 +43,3 @@ Feel free to reach out with questions or collaboration ideas.
 ✉️ nimbalkarsaee257@gmail.com
 
 © 2025 Saee Nimbalkar. All rights reserved. Content is for educational and professional demonstration purposes.
-
-
-Let me know if you want the complete license text for any option!
